@@ -41,6 +41,7 @@
 ### Contato
 
 - 📫 **E-mail**: lucas.l.augusto172@gmail.com
+- 📫 **E-mail**: ldlaconcursos@gmail.com
 - 📱 **Telefone**: (88) 9 8198-9621
 - 💼 **LinkedIn**: [Lucas Augusto](https://www.linkedin.com/in/lucas-augusto-a752872b5/)
 
